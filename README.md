@@ -1,2 +1,2 @@
-# !^^***[바보](ko.wiktionary.org/wiki/바보,"바보래요~")***^^!
+# !^^***[바보](https://ko.dict.naver.com/#/entry/koko/10ad7abf578e46fdb416c7e258693a83,"바보래요~")***^^!
 ----------------
