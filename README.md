@@ -1,2 +1,2 @@
-# !^^***[바보](en.wikipedia.org/wiki/Stupidity,"바보래요~")***^^!
+# !^^***[바보](https://en.wikipedia.org/wiki/Stupidity,"바보래요~")***^^!
 ----------------
